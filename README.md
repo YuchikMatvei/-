@@ -1,1 +1,11 @@
-# -
+![12](https://github.com/YuchikMatvei/-/assets/149879459/955ad9b3-18c7-4f58-9b5e-995b30b040d1)# -![Uploading 12.pn![11](https://github.com/YuchikMatvei/-/assets/149879459/3152e764-5b96-4dc3-a800-c4aafd2ad7f3)
+![10](https://github.com/YuchikMatvei/-/assets/149879459/083610bb-bb1c-42b2-ad0d-66dd75c97a0a)
+![9](https://github.com/YuchikMatvei/-/assets/149879459/b45a2a5a-e23a-483c-97f0-a6763b180427)
+![8](https://github.com/YuchikMatvei/-/assets/149879459/403f4127-e89b-43e4-a62f-1e10acfb9016)
+![6](https://github.com/YuchikMatvei/-/assets/149879459/92b3c502-5e93-47a7-a8b8-efe341feb3ea)
+![5](https://github.com/YuchikMatvei/-/assets/149879459/260781f9-1726-4849-b0a6-55388579325b)
+![4](https://github.com/YuchikMatvei/-/assets/149879459/c1f4fa6d-b06a-4e17-96b8-4c5a9ffe6f76)
+![3](https://github.com/YuchikMatvei/-/assets/149879459/51a40bd9-e0fd-4959-9e11-dc9e90e8c0d7)
+![2](https://github.com/YuchikMatvei/-/assets/149879459/4e1f2495-9222-4e71-bbb5-f6fa23dfdfca)
+![1](https://github.com/YuchikMatvei/-/assets/149879459/5064a543-4134-497a-b1e6-38b72e21b30f)
+g…]()
